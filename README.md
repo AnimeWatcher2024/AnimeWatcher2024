@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AnimeWatcher2024
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning HTML
+- 🌱 I have master HTML
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me just reach me
 - 😄 Pronouns: he\him\anime\guy\animeguy
